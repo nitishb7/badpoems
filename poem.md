@@ -1,5 +1,4 @@
-resham firiri reesham firiri
-udera jaau ki dadama bhanjyang resham firiri
+YELLOW SUBMARINE BY THE BEATLES
 
 In the town where I was born
 
